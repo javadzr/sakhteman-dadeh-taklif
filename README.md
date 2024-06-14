@@ -1,1 +1,0 @@
-# sakhteman-dadeh-taklif
